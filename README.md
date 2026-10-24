@@ -9,6 +9,8 @@
 
 - 🌱 I’m currently learning **Agentic Ai**
 
+- 👨‍💻 All of my projects are available at [https://puttajaswanthportfolio45.lovable.app/](https://puttajaswanthportfolio45.lovable.app/)
+
 - 📫 How to reach me **jaswanthputta17@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
